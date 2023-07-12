@@ -1,3 +1,3 @@
-I am an undergraduate at Informatics Institute of Technology, currently in level five (05)(year 2).
+I am an undergraduate at the Informatics Institute of Technology, currently in the industrial placement
 
-I am a young corder who is interested in new langauges and exploring new technologies and techniques.
+I am a young corder who is interested in new languages and exploring new technologies and techniques.
